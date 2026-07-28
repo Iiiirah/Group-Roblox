@@ -1,2 +1,2 @@
 # Group_Roblox
-System Information System hello everyone
+System Information System hello
