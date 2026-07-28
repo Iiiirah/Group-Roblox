@@ -1,2 +1,2 @@
 # Group_Roblox
-System Information System gg guyz
+System Information System
